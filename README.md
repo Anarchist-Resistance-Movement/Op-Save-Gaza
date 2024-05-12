@@ -1,18 +1,19 @@
------BEGIN PGP SIGNED MESSAGE-----
-Hash: SHA512
+-----BEGIN PGP SIGNED MESSAGE-----  
+Hash: SHA512  
 
 
-#OpSaveGaza #OpIsrael
-#CeaseFireNow #FreePalestine #LongLivePalestine #GlobalIntifada #ResistanceUnitedOnPalestine
-#ICC4Israel #ICJ_Breach #BoycottIsrael #BoycottApartheid #BDS #BDSMovement
+#OpSaveGaza #OpIsrael  
+#CeaseFireNow #FreePalestine #LongLivePalestine #GlobalIntifada #ResistanceUnitedOnPalestine  
+#ICC4Israel #ICJ_Breach #BoycottIsrael #BoycottApartheid #BDS #BDSMovement  
 
-   _  _  ________          _________                    ________                       
-__| || |_\_____  \ ______ /   _____/____ ___  __ ____  /  _____/_____  _____________   
-\   __   //   |   \\____ \\_____  \\__  \\  \/ // __ \/   \  ___\__  \ \___   /\__  \  
- |  ||  |/    |    \  |_> >        \/ __ \\   /\  ___/\    \_\  \/ __ \_/    /  / __ \_
-/_  ~~  _\_______  /   __/_______  (____  /\_/  \___  >\______  (____  /_____ \(____  /
-  |_||_|         \/|__|          \/     \/          \/        \/     \/      \/     \/ 
-
+`
+   _  _  ________          _________                    ________                         
+__| || |_\_____  \ ______ /   _____/____ ___  __ ____  /  _____/_____  _____________     
+\   __   //   |   \\____ \\_____  \\__  \\  \/ // __ \/   \  ___\__  \ \___   /\__  \    
+ |  ||  |/    |    \  |_> >        \/ __ \\   /\  ___/\    \_\  \/ __ \_/    /  / __ \_  
+/_  ~~  _\_______  /   __/_______  (____  /\_/  \___  >\______  (____  /_____ \(____  /  
+  |_||_|         \/|__|          \/     \/          \/        \/     \/      \/     \/  
+`
 
 
 There is no argument or debate. What is happening in Gaza & Palestine is ethnic cleansing & genocide. A vast number of rogue states and corrupt corporations around the world are deeply involved in turning the gears of this genocide. It has become alarming clear that those who facilitate have no intention of stopping the massacre of the Palestinian people. We see politicians stand behind podiums and attempt to pander to the voices of decency with nothing but empty words. An immediate cessation of ALL arms aid support and funding to the terrorist entity Israel is the only way to stop this genocide. Therefore, it is not only our right as citizens of the world, but it is our duty to document each and every individual, group, corporation, or any other entity who is involved in this genocide; as well as to make a target of those who are turning the gears of this war machine. The world has stood up to stamp out fascism & apartheid whenever it rears its ugly head; this time is no different.
