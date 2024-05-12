@@ -6,7 +6,6 @@ Hash: SHA512
 #CeaseFireNow #FreePalestine #LongLivePalestine #GlobalIntifada #ResistanceUnitedOnPalestine  
 #ICC4Israel #ICJ_Breach #BoycottIsrael #BoycottApartheid #BDS #BDSMovement  
 
-
    _  _  ________          _________                    ________                         
 __| || |_\_____  \ ______ /   _____/____ ___  __ ____  /  _____/_____  _____________     
 \   __   //   |   \\____ \\_____  \\__  \\  \/ // __ \/   \  ___\__  \ \___   /\__  \    
