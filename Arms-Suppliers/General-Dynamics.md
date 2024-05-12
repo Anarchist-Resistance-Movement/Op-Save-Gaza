@@ -1,0 +1,1 @@
+produces the Namer armoured vehicle for Israel. The Israeli MoD stated that “The Namer is considered to be the most heavily armored carrier in the world, and has proven its capabilities in Operation Protective Edge against myriad threats”.

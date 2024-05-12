@@ -1,0 +1,1 @@
+Pledged to connect Israel to the European union powergrid as well as to aid in the expansion of settlements in occupied Palestine

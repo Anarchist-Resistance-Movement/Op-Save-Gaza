@@ -1,0 +1,1 @@
+$1.22b contract with Isreal government for cloud services

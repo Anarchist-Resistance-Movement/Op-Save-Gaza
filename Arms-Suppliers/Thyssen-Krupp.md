@@ -1,0 +1,1 @@
+German shipbuilder, has supplied six Dolphin submarines to Israel. A more recent 2016 deal for the sale of 3 more Dolphin submarines has been delayed by a corruption investigation involving alleged bribes paid to key influencers in Israel.

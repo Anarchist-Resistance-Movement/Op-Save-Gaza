@@ -1,0 +1,4 @@
+Nordic Ammunition Company (Nammo)
+
+The maker of the M141 Bunker Defeat Munition, a shoulder-fired "bunker-buster" rocket used by the Israeli military in Gaza. As of the end of October, the U.S. has delivered 1,800 out of a requested 3,000 M141 shoulder-fired rocket launchers to Israel.
+These rockets are made in the U.S., at the Nammo Talley factory in Mesa, Arizona. However, Nammo Talley's parent company, Nammo, is headquartered in Norway and co-owned by the Norwegian government and Finnish company Patria Oyj. The latter is co-owned by the government of Finland (50.1%) and Norwegian company Kongsberg Defence & Aerospace (49.9%), which is part of Kongsberg Gruppen (FRA: KOZ).

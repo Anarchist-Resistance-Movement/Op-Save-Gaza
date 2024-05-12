@@ -1,0 +1,1 @@
+Joint producer of the Stunner missile with Rafael.

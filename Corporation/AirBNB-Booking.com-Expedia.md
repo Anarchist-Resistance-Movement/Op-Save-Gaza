@@ -1,0 +1,1 @@
+All 3 offer rentals for homes in illegal settlements.

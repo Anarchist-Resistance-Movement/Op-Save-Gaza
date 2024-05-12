@@ -1,0 +1,7 @@
+Rafael Advanced Defense Systems
+
+A large Israeli state-owned weapons manufacturer, Rafael Advanced Defense Systems makes missiles, drones, and other weapons systems for the Israeli military.
+The Israeli military has used Rafael Spike Anti-Tank Guided Missiles extensively to target, from the ground, people inside buildings in the Gaza Strip.
+The Israeli military has also used the Matador (RGW 90) portable shoulder-fired anti-tank rocket in Gaza, specifically by infantry soldiers to destroy buildings from the ground. The rockets are made by German company Dynamit Nobel Defence (DND), a subsidiary of Rafael, and co-developed with the Singaporean government. In 2023, the German government approved the export of some $27 million worth of weapons to Israel, including 3,000 portable anti-tank weapons—presumably the Matador.
+Rafael's Trophy Active Protection System for armored vehicles enables Israeli battle tanks to go into Gaza and avoid being damaged by anti-tank weapons. The company markets the system as one that "increases the lethality of combat forces."
+Rafael collaborated with the Israeli military to develop the Spark, a new unmanned drone used to carry out intelligence missions, escort ground forces, and direct strikes. After first being received by the Israeli Air Force in September, Spark drones have reportedly been assisting Israeli combat teams in Gaza and acting as a "force multiplier on the battlefield."

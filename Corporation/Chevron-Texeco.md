@@ -1,0 +1,1 @@
+Chevron is the leading extactor of oil and gas from Palestinian lands claimed by Isreal 
