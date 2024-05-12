@@ -1,17 +1,17 @@
------BEGIN PGP SIGNED MESSAGE-----
-Hash: SHA512
+-----BEGIN PGP SIGNED MESSAGE-----<br>
+Hash: SHA512<br>
+<br>
+<br>
+#OpSaveGaza #OpIsrael<br>
+#CeaseFireNow #FreePalestine #LongLivePalestine #GlobalIntifada #ResistanceUnitedOnPalestine<br>
+#ICC4Israel #ICJ_Breach #BoycottIsrael #BoycottApartheid #BDS #BDSMovement<br>
 
-
-#OpSaveGaza #OpIsrael
-#CeaseFireNow #FreePalestine #LongLivePalestine #GlobalIntifada #ResistanceUnitedOnPalestine
-#ICC4Israel #ICJ_Breach #BoycottIsrael #BoycottApartheid #BDS #BDSMovement
-
-   _  _  ________          _________                    ________                       
-__| || |_\_____  \ ______ /   _____/____ ___  __ ____  /  _____/_____  _____________   
-\   __   //   |   \\____ \\_____  \\__  \\  \/ // __ \/   \  ___\__  \ \___   /\__  \  
- |  ||  |/    |    \  |_> >        \/ __ \\   /\  ___/\    \_\  \/ __ \_/    /  / __ \_
-/_  ~~  _\_______  /   __/_______  (____  /\_/  \___  >\______  (____  /_____ \(____  /
-  |_||_|         \/|__|          \/     \/          \/        \/     \/      \/     \/ 
+   _  _  ________          _________                    ________                       <br>
+__| || |_\_____  \ ______ /   _____/____ ___  __ ____  /  _____/_____  _____________   <br>
+\   __   //   |   \\____ \\_____  \\__  \\  \/ // __ \/   \  ___\__  \ \___   /\__  \  <br>
+ |  ||  |/    |    \  |_> >        \/ __ \\   /\  ___/\    \_\  \/ __ \_/    /  / __ \_<br>
+/_  ~~  _\_______  /   __/_______  (____  /\_/  \___  >\______  (____  /_____ \(____  /<br>
+  |_||_|         \/|__|          \/     \/          \/        \/     \/      \/     \/ <br>
 
 
 
@@ -21,14 +21,14 @@ This repo will serve as a hub of information on parties involved in political Zi
 
 We believe in a diversity of tactics when fighting against the oppressive forces of this world, even more so when it comes to the terrorist organization Israel and fighting against this genocide in Palestine. We encourage the use of the information contained within these repos to fight against this genocide by any means necessary to make it stop. We take no responsibility for what others may do with the information contained in this repo. We will not be responsible for any damages or injuries caused by the use of this repo.
 
-Long Live Palestine, Long Live Gaza
------BEGIN PGP SIGNATURE-----
+Long Live Palestine, Long Live Gaza<br>
+-----BEGIN PGP SIGNATURE-----<br>
 
-iHUEARYKAB0WIQQ9y3l8Ke5daxksuwgOcqipYOjh4wUCZeIE1gAKCRAOcqipYOjh
-4/gOAP47UqvGScoRhwiTxYBy4ZvK3zQh9FZhjY8JBlUI23jxtAD+NyP0pp9SlonW
-tDX5v0rD3AB8vhOkEkHPw0BT1t4sgA0=
+iHUEARYKAB0WIQQ9y3l8Ke5daxksuwgOcqipYOjh4wUCZeIE1gAKCRAOcqipYOjh<br>
+4/gOAP47UqvGScoRhwiTxYBy4ZvK3zQh9FZhjY8JBlUI23jxtAD+NyP0pp9SlonW<br>
+tDX5v0rD3AB8vhOkEkHPw0BT1t4sgA0=<br>
 =oX6p
------END PGP SIGNATURE-----
+-----END PGP SIGNATURE-----<br>
 
 
 How to contribute:
