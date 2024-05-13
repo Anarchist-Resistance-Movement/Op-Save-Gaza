@@ -43,10 +43,10 @@ Democrat
 - dershowitz@givingback.org
 
 ### Social Media
-[Personal Site](https://alan-dershowitz.com/)
-[Twitter](https://twitter.com/AlanDersh)
-[Substack](https://dersh.substack.com/)
-[Facebook(inactive)](https://www.facebook.com/AlanMDershowitz)
+[Personal Site](https://alan-dershowitz.com/)  
+[Twitter](https://twitter.com/AlanDersh)  
+[Substack](https://dersh.substack.com/)  
+[Facebook(inactive)](https://www.facebook.com/AlanMDershowitz)  
 
 ### Offenses
 1. Zionist
