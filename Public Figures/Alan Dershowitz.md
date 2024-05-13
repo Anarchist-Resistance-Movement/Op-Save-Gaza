@@ -9,21 +9,21 @@ Yale University (LLB)
 Democrat  
 
 ### PRIMARY RESIDENCE:
-- 1575 Massachusetts Ave.
+- 1575 Massachusetts Ave.  
   Cambridge, MA 02138
 
 ### SECONDARY RESIDENCES:
-- 2 Tudor City Pl. Apt 8hs
+- 2 Tudor City Pl. Apt 8hs  
   New York, NY 10017
 
-- 2255 Glades Rd.
-  Unit 321A
+- 2255 Glades Rd.  
+  Unit 321A  
   Boca Raton, FL 33431
 
-- 1500 Ocean Dr.
+- 1500 Ocean Dr.  
   Miami Beach, FL 33139
 
-- 26 Reservoir St.
+- 26 Reservoir St.  
   Cambridge, MA 02138
 
 ### PHONE NUMBERS:
