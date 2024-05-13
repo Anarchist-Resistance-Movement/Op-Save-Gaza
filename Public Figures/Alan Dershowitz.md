@@ -8,11 +8,11 @@ Yale University (LLB)
 
 Democrat  
 
-## PRIMARY RESIDENCE:
+### PRIMARY RESIDENCE:
 - 1575 Massachusetts Ave.
   Cambridge, MA 02138
 
-## SECONDARY RESIDENCES:
+### SECONDARY RESIDENCES:
 - 2 Tudor City Pl. Apt 8hs
   New York, NY 10017
 
@@ -26,11 +26,11 @@ Democrat
 - 26 Reservoir St.
   Cambridge, MA 02138
 
-## PHONE NUMBERS:
+### PHONE NUMBERS:
 - 617-495-4617
 - 212-256-0567
 
-## EMAIL ADDRESSES:
+### EMAIL ADDRESSES:
 - adershowitz@americanfuture.net
 - dershowitz@givingback.org
 
