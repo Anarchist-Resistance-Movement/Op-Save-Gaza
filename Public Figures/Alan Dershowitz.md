@@ -5,9 +5,17 @@ Sept 1st 1938
 **Education**  
 Brooklyn College (BA)  
 Yale University (LLB)  
+
 **Employment**  
 Attorney/Law Professor  
-[Harvard](https://hls.harvard.edu/faculty/alan-m-dershowitz/)  
+Admitted to the Mass. Bar  
+May 22, 1968  
+
+Board of Bar Overseers Number  
+121200  
+
+[Harvard](https://hls.harvard.edu/faculty/alan-m-dershowitz/) 
+ 
 **Party**  
 Democrat  
 
